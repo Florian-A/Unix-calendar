@@ -1,1 +1,1 @@
-Fin des temps.
+Début du temps des machines.
