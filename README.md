@@ -1,1 +1,1 @@
-Début du temps des machines.
+🕒
